@@ -4,11 +4,11 @@
 
 
 
-\#*DATOS SOBRE MI* 
+\#*DATOS SOBRE MI*
 
 
 
-**Mi nombre es:** Camila Cazares Gama 
+**Mi nombre es:** Camila Cazares Gama
 
 
 
@@ -16,7 +16,11 @@
 
 
 
-**Mi meta es:** Poder lograr entender cada uno de los temas para poder desarrollar bien el objetivo de este y el otro modulo, poder entender bien 
+**Mi meta es:** Poder lograr entender cada uno de los temas para poder desarrollar bien el objetivo de este y el otro modulo, poder entender bien
 
-el funcionamiento de todo esto, para así poder tener mas conocimientos sobre esta carrera y realizar todo de la mejor manera, llevarme lo bueno y lo aprendido de estos módulos que me pueda ayudar en mi vida. 
+el funcionamiento de todo esto, para así poder tener mas conocimientos sobre esta carrera y realizar todo de la mejor manera, llevarme lo bueno y lo aprendido de estos módulos que me pueda ayudar en mi vida.
+
+
+
+HOLA!! Soy Ariadne y a mi también me gusta ver peliculas, deberíamos de ver una juntas y tu cocinas los postres.
 
